@@ -17,10 +17,10 @@ According to Zakaria, the mention served as a welcome acknowledgment of his comp
 
 The SDI Summit Special Mention shows that the fieldengineer.com model may represent the future of freelance employment. As workforces grow increasingly distributed, companies will undoubtedly look towards web platforms like this one to help them find telecom engineers with valuable skills. It's only a matter of time before other industries follow suit.
 
-About Fieldengineer.com
+About [Fieldengineer.com](https://www.fieldengineer.com)
 
 Field Engineer is a unique and Best Freelance site for Telecom Engineers  and professionals. By helping telecom field engineers and businesses interact seamlessly, the company seeks to dramatically reduce the burdens of hiring, job hunting, vetting and payment. To learn more, visit fieldengineer.com, or download the Field Engineer app for Android or iOS. 
-[url=https://www.fieldengineer.com]Best Freelance site for Telecom Engineers[/url]
+
 
 
 
