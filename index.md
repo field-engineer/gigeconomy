@@ -1,29 +1,42 @@
-2017 Service Delivery Innovation Summit Honors Fieldengineer.com With Special Mention – Industry Accreditation Best Emerging Start Up.
-
-Meta Title: SDI Awards Name Fieldengineer.com Best Emerging Startup 
-Meta Description: Learn why fieldengineer.com efforts to change the way telecom field engineers and businesses connect has won the attention of telecom industry leaders.
-
-New York – October 2, 2017 – Field Engineer, the motive force behind the renowned Fieldengineer.com freelance marketplace, differentiated itself yet again with its receipt of a Special Mention at the 2017 Service Delivery Innovation Summit. The SDI Summit, held in London beginning on September 27, named fieldengineer.com as the Best Emerging Industry Accreditation Startup.
-
+4 advantages of working with a freelancer
  
+There are areas where freelance employment is slowly becoming the norm. This trend is consistent with the number of self-employed. This number has made a good 85% from 2000 to 2018: proof that the world of work is still evolving. What are the advantages of recruiting freelance? The point on the question.
+ 
+1. A freelancer is a business owner
+ 
+A person who starts as a self-employed person is responsible. Rare is the freelance who tries the adventure of entrepreneurship without knowing how to manage himself. Recruit freelance is to deal with someone who knows the requirements of a company such as:
+• Customer Management
+• Cost issues
+• Respect of deadlines
+ 
+With a freelancer, 
+[Contingent Employment](https://www.fieldengineer.com/blogs/what-is-contingent-employment/)it is easier to see his project move forward and the relationship you have with him is on an equal footing.
+ 
+2. Customer satisfaction: the engine of freelance
+ 
+As an independent does not have fixed missions, he is obliged to make every effort to satisfy as best he can his customers. A happy customer is a customer who will later recommend his freelance to other people: this is the effect of word of mouth. So, expect to face tremendous efficiency from the person who will work for you. In addition, she will know:
+ 
+• Have an objective and critical look at your project
+• Listen to your remarks and requests
+•	Be proactive
+ 
+A freelancer will therefore apply his professional skills and present his opinion in all sincerity.
+ 
+3. A freelancer is a flexible professional
+ 
+An independent worker manages his days himself. Although he has more tasks than an employee (administrative tasks, work, canvassing, etc.), he is his own boss. In particular, he can free up days to work with you on your premises. A freelancer manages his projects and his schedules.
+ 
+Moreover, unlike work on projects in internal management, validations and modifications are often done more quickly. Freelancers are often very popular because they are reactive.
+ 
+4. An economical solution
+ 
+With his attractive profile, a freelancer is a definite plus for your business. Whether in your project of creating a website for example or in setting up an event, an independent will cost you less.
+Indeed, if you recruit a person on fixed term and therefore as a conventional worker, you will have accrued expenses. With a freelancer, you have only one expense: pay the bill for his performance.
+Often this is billed according to a quote that you have previously accepted.
+ 
+Convinced of the benefits of working with a freelancer? One last point: do not forget to mention when writing your job offer that a freelance person can agree!
 
-The annual SDI awards gathering gauges different firms on their ability to realize innovative uses of technology. Although this means that the award recipients hail from a variety of specialties, it also demands that they outshine countless other companies. Enterprises that win recognition not only have to rise to the top of their respective telecom fields but also demonstrate their prowess in the face of fierce competition from diverse service providers. 
-
-The freelance Field Engineer platform allows businesses to connect with telecom & IT field engineers from around the world and cooperate on various projects. The web-based application lets engineers advertise their skills, promote their credentials and search for freelance gigs, but unlike other services, it also allows them to submit bids, negotiate employment terms and receive payment. Companies in search of talent can fund accounts to manage their field engineering staff budgets, oversee job progress in real time and perfect the way they evaluate and hire background-cleared bidders.
-
-The Emerging Startup Special Mention placed Fieldengineer.com in good company with multinational technology giants, such as Huawei and PCCW Global. The awards drew highly regarded international visitors and speakers who represented their companies and shared novel ideas that are sure to shape the way telecom technology practices evolve for years to come. FieldEngineer.com CEO and founder, Malik Zakaria, was also in attendance, and he delivered a well-received presentation that shed light on how enterprises could continue overcoming the hurdles associated with providing services in a world of rapid internet expansion and B2B workforce growth.
-
-According to Zakaria, the mention served as a welcome acknowledgment of his company's progress. "Since the beginning, we've dedicated ourselves to making career management easier for field engineers and empowering telecom companies to tap into pools of highly skilled specialists," Zakaria said. "Although we've faced challenges along the way, we're proud to be redefining the way professionals make the connections that help them drive their careers forward."
-
-The SDI Summit Special Mention shows that the fieldengineer.com model may represent the future of freelance employment. As workforces grow increasingly distributed, companies will undoubtedly look towards web platforms like this one to help them find telecom engineers with valuable skills. It's only a matter of time before other industries follow suit.
-
-About [Fieldengineer.com](https://www.fieldengineer.com)
-
-Field Engineer is a unique and Best Freelance site for Telecom Engineers  and professionals. By helping telecom field engineers and businesses interact seamlessly, the company seeks to dramatically reduce the burdens of hiring, job hunting, vetting and payment. To learn more, visit fieldengineer.com, or download the Field Engineer app for Android or iOS. 
 
 
 
-
-Also Read
-[What Is Contingent Employment?](https://www.fieldengineer.com/blogs/what-is-contingent-employment/)
 
