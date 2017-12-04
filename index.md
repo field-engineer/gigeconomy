@@ -10,7 +10,7 @@ A person who starts as a self-employed person is responsible. Rare is the freela
 • Respect of deadlines
  
 With a freelancer, 
-[Contingent Employment](https://www.fieldengineer.com/blogs/what-is-contingent-employment/)it is easier to see his project move forward and the relationship you have with him is on an equal footing.
+[Contingent Employment](https://www.fieldengineer.com/blogs/what-is-contingent-employment/) it is easier to see his project move forward and the relationship you have with him is on an equal footing.
  
 2. Customer satisfaction: the engine of freelance
  
